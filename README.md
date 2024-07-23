@@ -2,7 +2,7 @@
 - 👀 I’m interested in data analysis
 - 🌱 I’m currently learning tools related to data analysis
 - 💞️ I’m looking to collaborate on projects and also looking for job
-- 📫 How to reach me - sanskarjaiswal31@gmail.com
+- 📫 How to reach me - 
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: ...
 
